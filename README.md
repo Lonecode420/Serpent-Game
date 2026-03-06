@@ -11,7 +11,7 @@
 
 ## 🎮 Play Now
 
-👉 **[https://YOUR-USERNAME.github.io/serpent-game](https://YOUR-USERNAME.github.io/serpent-game)**
+👉 **https://ochys.top/Game.php**
 
 ---
 
